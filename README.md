@@ -1,1 +1,1 @@
-"# P-gina-de-Not-cias" 
+Feito em dupla com Bernardo.
